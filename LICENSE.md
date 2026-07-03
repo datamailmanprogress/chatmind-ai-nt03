@@ -1,4 +1,4 @@
-# 
+# VIP ChatMind guide. Download and install with detailed-docs and api-access — fast, secure, and easy to use.
 
 
 
